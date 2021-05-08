@@ -1,0 +1,1 @@
+A Khakhara Pizza is a healthy and tasty snack which takes less time to cook.
